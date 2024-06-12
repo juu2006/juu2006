@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on socialmente
 - 😄 Pronouns: Ela-Dela
 - ⚡ Fun fact: Gosto muito de dormir
+- ![](https://media1.tenor.com/m/C1QLgVdiRgAAAAAd/so-sleepy.gif)
 
 <!---
 juu2006/juu2006 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
